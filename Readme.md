@@ -12,5 +12,5 @@ Kindly check and verify this repository at your convenience.
 I’ve uploaded all the required tasks with care — please review them and let me know if any corrections are needed.  
 Your cooperation will be highly appreciated.  
 
-Thank you! 🙏  
+Thank you!  
 **Syed Shahamat Shakeel**
